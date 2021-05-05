@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @keirman
 - 👀 I’m interested in men
 - 🌱 I’m currently learning how to talk
-- 💞️ I’m looking to collaborate on bed
+- 💞️ I’m looking to collaborate in bed
 - 📫 How to reach me discord 
 
 <!---
